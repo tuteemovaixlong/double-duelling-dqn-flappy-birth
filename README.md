@@ -2,5 +2,9 @@
 chơi chim, say oh yeah, cảm ơn vì buổi debug chết mẹ, ô kê
 
 
-Uploading tải xuống (1).mp4…
+
+
+
+
+https://github.com/user-attachments/assets/b65be729-49e2-42b9-af49-7bc492bcc66d
 
